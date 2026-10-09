@@ -1,0 +1,1 @@
+# veri-bilimi-ve-uyg.-makine-r.
